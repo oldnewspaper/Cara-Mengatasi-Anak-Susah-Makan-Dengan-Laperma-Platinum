@@ -1,2 +1,4 @@
-# Cara-Mengatasi-Anak-Susah-Makan-Dengan-Laperma-Platinum
+# Cara Mengatasi Anak Susah Makan Dengan Laperma Platinum
 Salah satu cara aman dan praktis untuk mengatasi masalah anak susah makan adalah dengan menggunakan produk Laperma Platinum yang mengandung madu asli.
+
+Informasi tentang <a href="http://ferry-bachtiar.blogspot.com/2016/11/mengatasi-anak-susah-makan.html">Cara Mengatasi Anak Susah Makan dengan Laperma Platinum</a> telah terbukti menjadi salah satu cara aman dan praktis untuk mengatasi masalah kurangnya nafsu makan pada anak. Apalagi produk Laperma Platinum yang mengandung madu asli. Memang kadang-kadang anak mengalami kondisi dimana pada saat-saat tertentu mereka merasa enggan atau malas makan. Kondisi ini masih dikatakan fase normal dalam perkembangan anak, selama terjadinya juga masih dalam batas yang wajar. Beberapa sumber telah mengungkapkan bahwa anak akan mengalami kondisi malas makan pada saat mereka mulai mendapatkan kebebasannya.
